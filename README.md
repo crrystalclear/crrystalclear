@@ -1,4 +1,7 @@
-<p align="center"> ꨄ︎ <img src="https://media1.tenor.com/m/5MAckBtYZkwAAAAC/miwi-byler.gif" />
+
+<p align="center">  ㅤ♡
+
+<p align="center">  <img src="https://media1.tenor.com/m/5MAckBtYZkwAAAAC/miwi-byler.gif" />
 </p>
 
 
