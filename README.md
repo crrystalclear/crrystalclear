@@ -4,6 +4,5 @@
 
 <div align="center">
 
-![IMG_1500](<img width="374" height="187"![Uploading byler-mike-wheeler.gif…]()
- " />
-)
+
+![](https://tenor.com/view/byler-mike-wheeler-will-byers-stranger-things-stranger-things-5-gif-7140040594412401428)
