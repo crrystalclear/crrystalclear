@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=crrystalclear&label=𓂃˚‧ 𓆸&color=8f9779&style=plastic)
+![](https://komarev.com/ghpvc/?username=crrystalclear&label=꩜&color=8f9779&style=plastic)
 
 <p align="center">  <img src="https://media1.tenor.com/m/Qe4lV2Ay8RUAAAAC/byler-byler-gay.gif" />
 </p>
