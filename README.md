@@ -12,4 +12,4 @@
 
 
 
-[atabook](https://crystalssa.atabook.org/)    ꒰⁐⁐⁐⁐୨୧⁐⁐⁐⁐꒱    [strawpage](https://silverbox0.straw.page/)
+[atabook](https://crystalssa.atabook.org/)    ︶꒦︶꒷︶︶꒷꒦︶︶︶꒷꒦    [strawpage](https://silverbox0.straw.page/)
