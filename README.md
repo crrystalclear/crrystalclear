@@ -2,7 +2,5 @@
 </p>
 <p align="center">ahaa yeeay wanna be my lovaa
 
-<div align="center">
-
-
-![](https://tenor.com/view/byler-mike-wheeler-will-byers-stranger-things-stranger-things-5-gif-7140040594412401428)
+<p align="center">  <img src="https://www.tumblr.com/search/rentry%20graphics?src=typed_query" />
+</p>
