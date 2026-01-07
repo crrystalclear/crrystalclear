@@ -1,4 +1,4 @@
-<p align="center">  <img src="https://tenor.com/view/stranger-things-stranger-things-5-stranger-things-season-5-mike-wheeler-mike-wheeler-season-5-gif-7902706640106940142" />
+<p align="center">  <img src="https://media1.tenor.com/m/5MAckBtYZkwAAAAC/miwi-byler.gif" />
 </p>
 
  ---
