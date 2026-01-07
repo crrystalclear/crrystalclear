@@ -4,4 +4,5 @@
 
 <div align="center">
 
-![IMG_1500](https://github.com/user-attachments/assets/4eccfa4f-59b2-46ff-8917-4292158271e2)
+![IMG_1500](<img width="374" height="187" alt="image" src="https://github.com/user-attachments/assets/10cd7eb5-122d-465d-a671-9b0bc6fd4952" />
+)
