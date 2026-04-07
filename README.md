@@ -1,6 +1,10 @@
 
 <p align="center">  ㅤ♡
 
+
+<p align="center">[atabook](https://crystalssa.atabook.org/)    ︶꒦︶꒷︶︶꒷꒦︶︶︶꒷꒦    [strawpage](https://silverbox0.straw.page/)
+
+  
 <p align="center">  <img src="https://media1.tenor.com/m/YIIdGGXXG1UAAAAC/demilore-emma-woods.gif" />
 </p>
 
