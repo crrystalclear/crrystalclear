@@ -3,10 +3,10 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=your-github-crrystalclear&color=779179&label=꩜ )
+![](https://komarev.com/ghpvc/?username=your-github-crrystalclear&color=B6B6E3&label=꩜ )
 
   
-<p align="center">  <img src="https://media1.tenor.com/m/n1MsVbOyYX4AAAAC/galatea-claude-idv.gif" />
+<p align="center">  <img src="https://media1.tenor.com/m/sH_TUG8L-8AAAAAd/galatea-sculptor.gif" />
 </p>
 
 
