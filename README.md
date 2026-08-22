@@ -6,7 +6,7 @@
 ![](https://komarev.com/ghpvc/?username=your-github-crrystalclear&color=B6B6E3&label=꩜ )
 
   
-<p align="center">  <img src="https://media.tenor.com/iq9nRiUoOM4AAAAM/sculptor-idv-sculptor.gif" />
+<p align="center">  <img src="https://media1.tenor.com/m/SUDksKCX7mUAAAAd/galatea-identityv.gif" />
 </p>
 
 
